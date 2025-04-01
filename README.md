@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a passionate Systems Engineer with a strong background in Robotic Process Automation, software <br>development and management. I have 18 months of experience. I am open to new career opportunities <br>and would love to connect with colleagues, industry professionals and companies in need of a passionate, <br>results-oriented systems engineer - let's talk about how I can bring value to your team!
+I am a passionate Systems Engineer with a strong background in Robotic Process Automation, software <br>development and management. I have 24 months of experience. I am open to new career opportunities <br>and would love to connect with colleagues, industry professionals and companies in need of a passionate, <br>results-oriented systems engineer - let's talk about how I can bring value to your team!
 
 
 ## 🌐 Socials:
